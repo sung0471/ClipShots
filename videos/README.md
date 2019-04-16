@@ -1,1 +1,0 @@
-The videos are currently not ready for release.
